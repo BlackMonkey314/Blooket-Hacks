@@ -11,6 +11,6 @@ Still in progress! I'm still coding every hack.
 
 
 
-
+I just started coding, I wanna become pro. Don't blame me because of my code.
 
 If your wondering about my username, I made it in elementary school. Payed the price later on in life, but it's whatever. I like the name anyway.
