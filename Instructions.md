@@ -4,4 +4,4 @@
 2. Go to bookmarks
 3. Paste the code into the address part
 4. Use it IN game
-5. Win the game, making everyone mad
+5. Cheat, making everyone mad
