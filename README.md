@@ -2,4 +2,4 @@
 
 Blooket Hacks, only mobile, mobile users can use this.
 
-Still in progress! I'm in progress of coding every hack.
+I quit updating this, sorry about that. The hacks probably won't work anymore.
